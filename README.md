@@ -19,9 +19,11 @@ Parent/Guardian(s) Name(s), Family: My dads name is Martin Shaw, My mums name is
 **Part Time Job (if applicable):** The only part-time job I do is baby-sit and clean my house for my parents.
 
 **Strengths and Weaknesses:** 
+
 Strengths:
 * Listening
 * Asking for help when needed 
+
 Weaknesses: 
 * note-taking
 * Trying to figure things out myself before asking for help
