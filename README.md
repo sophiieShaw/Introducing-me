@@ -1,3 +1,6 @@
+# Introducing Me
+### By Sophie Shaw
+
 **Name:** Hi, my name is Sophie Which is really just a nickname for Sophia which is my real name after my great grandma Zocha, She lived in poland so that why the name sounds really weird in english. My middle name is Marie after my great grandma on my mum's side.  
 
 **Hometown:** I was orignally born on a small island in the Atlantic Ocean called Bermuda, my Parents worked there for around 15 years, but after I was born I only lived there for 4 years until I moved to west Ontario in a very small town called Vermillion Bay. My Aunt and Uncle Lived there so we stayed with them for about 1 year. After that we moved to Ottawa and have lived here since 2009.  
@@ -15,7 +18,13 @@ Parent/Guardian(s) Name(s), Family: My dads name is Martin Shaw, My mums name is
 
 **Part Time Job (if applicable):** The only part-time job I do is baby-sit and clean my house for my parents.
 
-**Strengths and Weaknesses:** I think my Strenghts are Listening, and asking for help when needed. My weaknesses are note-taking because I like to take my time and make them nice, also trying to work out problems myself as I prefer to have instrution.
+**Strengths and Weaknesses:** 
+Strengths:
+* Listening
+* Asking for help when needed 
+Weaknesses: 
+* note-taking
+* Trying to figure things out myself before asking for help
 
 **Languages you speak:** My Main language I speak at home is english however I know some french but thats it. 
 
